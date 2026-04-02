@@ -24,11 +24,11 @@ Here are some ideas to get you started:
 - 💼 LinkedIn: https://www.linkedin.com/in/arina-tuladhar-118m25  
 
 <!--## 🌍 Portfolio
-👉 https://kritishmapradhan.github.io/Professional-Portfolio/-->
+👉 https://arina-tuladhar.github.io/Professional-Portfolio/
 
 ## 😄 Fun Fact
 > Wish I had teleportation powers so I could travel the entire world 🌍 >_<  
-> Reading minds would also be fun 💭
+> Reading minds would also be fun 💭-->
 
 ---
 
